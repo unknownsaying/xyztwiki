@@ -2,7 +2,7 @@
 # cited from Visual Basic .net Keywords 
 # refer to Typescript and JavaScript
 
-# will be Realized on STEAM as soon as possible
+# will be Released on STEAM as soon as possible
 
 # E A D G B E
       
