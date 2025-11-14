@@ -1,6 +1,8 @@
-# xyztwiki
-keep moving while Freeze the spacetime 
 
-      inspired by ASTRONEER AND UniverseSandBox
+    will be Realized on steam as soon as possible
+    
+    E A D G B E
+      
+    seize the power to enter inner core of Planet in CMB(Cosmic Microwave BackGround)
 
-      seize the power to enter inner core of Planet in CMB(Cosmic Microwave BackGround)
+    This Project is inspired by haikuOS , kolibriOS , Puter
