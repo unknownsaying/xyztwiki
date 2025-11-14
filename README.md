@@ -15,11 +15,3 @@
     including CSS Cascading Style Sheet to display color
 
     seldom apply any kinds of Chatbot
-
-# focus on a MetaVerse created by Mark Zurkberger and Valve CEO Gabe Gewell 
-
-# I am a fan of VR headset Meta Quest 3Q 
-
-# Don't Worry Virus Infection
-
-# We will open Workshop and mod addon Exactly on steam, stay turned
